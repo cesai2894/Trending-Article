@@ -6,7 +6,27 @@
 
 文章参考官媒资料撰写，无任何不良引导请理性阅读，为阅读通顺文章可能存在润色部分，如有侵权或文章错误请私信指出！编辑：xk
 前言
-跳水皇后郭晶晶，手握4枚奥运金牌.
+跳水皇后郭晶晶，手握4枚奥运金牌.https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+https://www.jfweb.cn
+
+
 
 嫁入顶级豪门却始终朴素低调，是全网公认的“豪门清流”。
 
@@ -21,6 +41,26 @@
 
 这背后的信号耐人寻味，藏着怎样的治理风向？
 
+https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
+https://www.yuehaidl.com
+
 
 
 
@@ -31,11 +71,51 @@
 被点名的账号叫“花姐美肤日记”。视频里的“吴越”推荐一款护肤品，“闭着眼睛囤，孕妇妈妈都能用”，话术是“拍1发30”。声音是她的，脸是她的，连停顿都像。只有一点不对：她本人不知道这回事。
 
 
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
+https://www.peixun8.cc
+
 
 
 视频末尾还接了一段“邓亚萍”的带货画面。邓亚萍团队当天回应：从未代言，从未授权他人使用自己的AI形象，所有商业合作都禁止AI相关使用。“这种假视频实在太多了，我们正在取证。”
 
 按吴越保留的截图，涉事直播间近30天卖出6732件，这款商品累计16492件，粗算超过130万元。北京一家大模型公司演示过，一张照片、一张产品图、一段文字，5分钟就出一条口型对得上的带货视频，电商平台还有人接单。
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+https://www.sgdj.net
+
 
 
 
@@ -52,6 +132,26 @@
 通报里的“花**记”，名单外的那个名字
 
 9月7日，最高人民法院发布《关于依法审理涉人工智能纠纷案件的意见》，5部分24条，是国家最高审判机构第一部涉AI裁判规则文件。
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+https://www.gyjk88.com
+
 
 
 
@@ -67,6 +167,27 @@
 
 央广网10月19日的评论更直白：“AI技术绝不能闭着眼睛滥用，平台更不能闭着眼睛监管。”涉事视频的角落，从头到尾就挂着“作者提示：含AI生成内容”。
 
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
+
+https://www.izhuang8.com
 
 
 
@@ -82,6 +203,27 @@
 依我看，分量不在数字。4.7万条、3961个，放进9月那轮561万余条、4.9万余个账号的盘子里并不算大。
 
 
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
+
+https://www.londunpremier.com
 
 
 分量在分类：把“假冒公众人物带货”单独摆第一，等于给这类行为定了性。末尾还加了一句“对问题突出的平台依法查处”，以前封账号，这次连平台一起点名。
