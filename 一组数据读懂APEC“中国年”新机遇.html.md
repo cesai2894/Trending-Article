@@ -12,6 +12,27 @@
 60.3%是什么概念？今年前三季度，中国每100元的外贸进出口中，就有60.3元来自APEC经济体，明显高于去年同期57.8元的水平。
 
 更值得关注的是结构变化。前三季度，中国对APEC经济体进出口的高技术产品同比增长50.3%，贡献了我国与APEC其他经济体之间，近一半的贸易增量。
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
+
+https://www.londunpremier.com
 
 高技术制造成我国对亚太出口的新名片
 
@@ -20,6 +41,27 @@
 智能仿生机器人持续走向国际市场，中国对APEC经济体出口额前三依次是美国、日本、韩国。在这一项上，APEC经济体占到了中国对全球出口总额的六成以上。
 
 太阳能电池，今年出口继续快速增长，尤其是对印度尼西亚的出口额增幅接近1.5倍。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
+
+https://www.izhuang8.com
 
 如今，中国新能源汽车在澳大利亚的市场占比不断提高，广受当地欢迎。
 
@@ -27,7 +69,27 @@
 
 亚太贡献了全球约一半的国际贸易额。作为全球经济增长的核心引擎，亚太正在为全球经济提质升级注入宝贵的确定性力量。
 
-未来之城 未来生活
+未来之城 未来生活https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+https://www.gyjk88.com
+
+
 
 很多来过深圳的人都有一个共同的感受，就是这座城市很有未来感。这是因为很多“神奇科技”在这里已经变为日常。跟随记者镜头在深圳感受“未来已来”的生活。
 
@@ -35,7 +97,27 @@
 
 无人驾驶从容上路
 
-解锁早高峰新体验
+解锁早高峰新体验https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+https://www.sgdj.net
+
+
 
 没有司机，车却认得路：红绿灯、电动车、停下的前车，它都能自己判断、自己避让。要是真赶时间，还能往天上“飞“。从深圳北站下车，打个“飞的”，地面40分钟的路，天上8分钟就到，核心商圈、海岸风光触手可及。
 
@@ -47,7 +129,27 @@
 
 走进后厨，机器自己就能倒油、翻炒，行云流水，又快又好。
 
-炒菜、传菜、上菜，机器人啥都能干。除了饭菜，咖啡它也能做。
+炒菜、传菜、上菜，机器人啥都能干。除了饭菜，咖啡它也能做。https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
+https://www.peixun8.cc
+
+
 
 哥伦比亚游客 桑德拉：依托这些技术，生活也变得更加简单便捷。
 
@@ -57,7 +159,27 @@
 
 忙完了一整天的工作，来公园跑步。不带手机，也不戴运动手表。只需要在自助终端领取一张个人专属的号码牌，剩下的数据，跑道都替你想着。
 
-跑道每隔一段就有打卡点，一跑过，号码牌自动识别，成绩一点不落。
+跑道每隔一段就有打卡点，一跑过，号码牌自动识别，成绩一点不落。https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
+https://www.yuehaidl.com
+
+
 
 总台记者 朱解语：我现在已经跑了1.1公里，我的用时、平均配速，还有消耗的热量，屏幕上都会显示。
 
@@ -68,6 +190,26 @@
 十分钟借到好书
 
 总台记者 朱解语：如果你觉得跑步太累，想来一场心灵的放松，还有一个选择——魔法藏书阁。
+https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+https://www.jfweb.cn
+
 
 这里是全国规模最大的地下无人智能立体书库，总占地面积近3000平方米，书架足足有六层楼高，能够存储400万册图书。读者提交借阅申请，机器立刻在海量藏书里精准定位，把书跨楼层运送到人工拣选站点，再由工作人员放入调阅站。
 
