@@ -13,6 +13,27 @@ Dopa：这是诱导对方选出奥莉安娜的BLG啊
 非常清楚奥莉安娜在什么英雄交互下会很舒服，在什么情况下会很难受。
 
 “没有泰坦？那这把就不该拿奥莉安娜。”
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
+
+https://www.londunpremier.com
 
 ——“啊，这本来该是2比0的” —— 他现在绝对在想这个，哈哈。
 
@@ -27,6 +48,27 @@ Dopa：这是诱导对方选出奥莉安娜的BLG啊
 ——Ruler真的杂技秀Carry了整整50分钟，
 
 说实话这把Chovy有点拉胯了。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
+
+https://www.izhuang8.com
 
 本来真的能赢下来的，
 
@@ -41,6 +83,27 @@ Dopa：这是诱导对方选出奥莉安娜的BLG啊
 Viper伤害量卧槽 9万4千
 
 ——9万？？？简直是核爆啊真的。
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+https://www.gyjk88.com
+
+
 
 ——Viper出装思路也太聪明了，前期直接拉满纯输出装，等两件套出来后再补女神泪。而且最后出残疫也是，脑子就是好使，完全不是普通AD的头脑。
 
@@ -53,6 +116,27 @@ Chovy选手镜头切进来了
 ——完蛋了，心态动摇了。
 
 ——看这表情好像真是要完蛋了。
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+https://www.sgdj.net
+
+
 
 ——Ruler现在也到极限了。
 
@@ -69,6 +153,27 @@ GEN超级危机！！！！！BLG2:1拿到赛点
 ——一楼抢安蓓萨是什么草食型BP？
 
 ——该死的朴老师是疯了吗。
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
+https://www.peixun8.cc
+
+
 
 ——梁大仁+Viper组合简直是BP之神
 
@@ -91,6 +196,27 @@ Knight打得太令人震撼了。
 ——不过用安妮打维克托确实挺难打的，这局倒也不好说什么。
 
 ——所以我觉得那手就该直接抢维克托的，真搞不懂为什么要选安妮。
+https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
+https://www.yuehaidl.com
+
+
 
 ——世界赛的Chovy登场了卧槽
 
@@ -111,6 +237,26 @@ Knight打得太令人震撼了。
 ——无论怎么看都是名帅无疑。
 
 Viper世界赛决赛的动机（为妈妈）
+https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+https://www.jfweb.cn
+
 
 ——说真的这届世界赛，
 
