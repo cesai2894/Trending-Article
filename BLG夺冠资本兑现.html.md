@@ -6,11 +6,53 @@ BLG夺冠资本兑现：转转、罗技、雷鸟等扎堆赞助，李宁联名�
 关注
 蓝鲸新闻11月15日讯（记者 陆鹏鹏）北京时间11月15日，BLG战胜Gen.G，夺得S16英雄联盟全球总决赛冠军。
 
-此前BLG已经连续击败三支LCK队伍：瑞士轮2-0淘汰HLE、八强赛3-0淘汰DK、半决赛3-1淘汰T1。此外半决赛中，BLG还创造了新的纪录，终结了LPL队伍在世界赛BO5中对T1的长期不胜纪录。
+此前BLG已经连续击败三支LCK队伍：瑞士轮2-0淘汰HLE、八强赛3-0淘汰DK、半决赛3-1淘汰T1。此外半决赛中，BLG还创造了新的纪录，终结了LPL队伍在世界赛BO5中对T1的长期不胜纪录。https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
+
+https://www.londunpremier.com
+
 
 如今在决赛中击败Gen.G，意味着BLG这座召唤师杯，是连过HLE、DK、T1、Gen.G四支LCK队伍拿下的，全程没有一场内战，硬生生从韩国赛区的包围圈里杀了出来。这也是队史首座S赛冠军，两年前的S14决赛，他们正是输给T1屈居亚军，如今亲手翻过了那一页。
 
 赛场之外，这一冠更是一场资本兑现。B站自2017年入局电竞，九年持续投入，旗下电竞公司从引入外部融资到数亿的估值，如今等来了最高级别的回报。BLG背后的赞助商也顺势拿到了“大结果”。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
+
+https://www.izhuang8.com
 
 BLG夺冠背后
 
@@ -19,10 +61,50 @@ BLG夺冠背后
 LPL赛区十几年的发展让各个战队经历了多方资本的迭代，目前，头部绩优战队背后基本都有雄厚且稳定的资本支持。
 
 BLG英雄联盟分部的前身是由EDG的二队改编的IM战队，IM战队全称为IMay。2017年12月18日，bilibili官方就发文表示收购了IMay电竞战队，并更名为BLG电子竞技俱乐部，简称BLG。
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+https://www.gyjk88.com
+
 
 2021年1月，哔哩哔哩电竞完成1.8亿元首轮融资，由浙江创想文化基金领投，天府文投、博瑞传播、无锡金投跟投，投后估值超过8亿元。
 
 目前，BLG背后的运营主体为上海哔哩哔哩电竞信息科技有限公司，股权由三方持有：上海哔哩哔哩动画有限公司持股55.7802%，为控股股东；自然人朱轶晨持股43.3747%；上海哔哩哔哩科技有限公司持股0.8452%。
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+https://www.sgdj.net
+
 
 电竞直播反哺B站
 
@@ -32,13 +114,53 @@ BLG英雄联盟分部的前身是由EDG的二队改编的IM战队，IM战队全�
 
 财报显示，B站2025年营收达303.5亿元，同比增长13%；调整后净利润25.9亿，实现全年盈利。
 
-2026年上半年总营收达154.1亿元，同比增长7.5%。其中增值服务收入58.8亿元，同比增长4%，广告收入57.2亿元，同比增长29%；经调整净利润12.89亿元，同比增长39.7%，盈利能力持续改善。
+2026年上半年总营收达154.1亿元，同比增长7.5%。其中增值服务收入58.8亿元，同比增长4%，广告收入57.2亿元，同比增长29%；经调整净利润12.89亿元，同比增长39.7%，盈利能力持续改善。https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
+https://www.peixun8.cc
+
+
 
 报告期内，B站旗下BLG在3月全球先锋赛决赛中3:1击败G2，拿下队史首个国际赛事冠军。财报同时显示，上半年平台游戏相关内容观看时长同比增长23%，日活跃用户达1.16亿，日均使用时长116分钟，月活用户3.73亿，用户总使用时长同比增长17%，电竞内容对用户停留的拉动清晰可见。
 
 这种转化在决赛前就已提前上演。蓝鲸记者注意到，B站把大会员生意搬到了抖音“哔哩哔哩大会员官方旗舰店”直播间，围绕决赛推出活动：138元大会员连包年卡，若BLG夺冠则加赠一年。
 
-该店铺位列抖音生活娱乐充值榜第一名。决赛前，直播间在线人数为超2000人，店内售价188元的大会员双年卡已售7.5万件。赛事带来的注意力，就这样被B站直接导向了会员付费。
+该店铺位列抖音生活娱乐充值榜第一名。决赛前，直播间在线人数为超2000人，店内售价188元的大会员双年卡已售7.5万件。赛事带来的注意力，就这样被B站直接导向了会员付费。https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
+https://www.yuehaidl.com
+
+
 
 事实证明，B站投资电竞，最直观的作用是帮助平台在电竞舆论场占据主动。从英雄联盟赛事直播版权到自营俱乐部，相关内容持续带来高黏性的年轻用户和热点流量，这些流量既可以通过直播增值服务和广告变现，也能进一步拉动用户时长和付费转化，反哺平台业绩。
 
@@ -48,7 +170,27 @@ BLG英雄联盟分部的前身是由EDG的二队改编的IM战队，IM战队全�
 
 赞助方面，BLG在LPL战队中的赞助商数量也是名列前茅的。
 
-蓝鲸记者梳理发现，截至2026年11月，BLG电子竞技俱乐部的官方赞助商主要包括‌转转、罗技G、雷鸟创新、杜蕾斯、TGIF拓际、舒肤佳、爱攻 AGON‌，不同分部的合作品牌有所区别。
+蓝鲸记者梳理发现，截至2026年11月，BLG电子竞技俱乐部的官方赞助商主要包括‌转转、罗技G、雷鸟创新、杜蕾斯、TGIF拓际、舒肤佳、爱攻 AGON‌，不同分部的合作品牌有所区别。https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+https://www.jfweb.cn
+
+
 
 动作最大的是雷鸟创新。这家消费级AR品牌在开赛前打出“BLG不夺冠，雷鸟全退款”的口号，只要雷鸟赞助的BLG战队未能夺得S16总冠军，活动期内下单的用户即可享受全额退款，且产品不用退回。这一营销把产品销售直接绑在决赛结果上。
 
