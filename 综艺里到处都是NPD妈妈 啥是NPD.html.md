@@ -4,6 +4,27 @@
 分享至
 在近期热播的综艺《再见爱人》中，杨子的一些发言引起网友热议，麦琳的相关话题更是频频登上热搜，两人均被网友“确诊”为NPD。而在另一档综艺《花儿与少年》中，周雨彤在节目里的一些争议行为也引起了网友关于NPD的讨论。
 
+https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+https://www.jfweb.cn
+
+
 
 
 
@@ -15,30 +36,151 @@
 
 NPD意为自恋型人格障碍，是一种在医学层面上可被诊断的精神病症。
 
-在美国精神医学学会2013年出版的《精神障碍诊断与统计手册（第五版）》中，自恋性（型）人格障碍被定义为：这是一种需要他人赞扬，并且极其缺乏共情的一种自大的普遍心理行为模式，它往往来自于成年早期，存在于各种背景之下。比如在亲密关系里，伴侣某些时刻没有及时展现出对自己的爱慕和赞赏，他可能会立刻应激一般爆发极大的愤怒，造成激烈的矛盾。
+在美国精神医学学会2013年出版的《精神障碍诊断与统计手册（第五版）》中，自恋性（型）人格障碍被定义为：这是一种需要他人赞扬，并且极其缺乏共情的一种自大的普遍心理行为模式，它往往来自于成年早期，存在于各种背景之下。比如在亲密关系里，伴侣某些时刻没有及时展现出对自己的爱慕和赞赏，他可能会立刻应激一般爆发极大的愤怒，造成激烈的矛盾。https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
+https://www.yuehaidl.com
+
+
 
 这么一看，NPD的核心特点好像是“自恋”，不过自恋绝不等于NPD。
 
 北京大学心理学博士徐凯文介绍，NPD的最大特点在于通过否定、贬低他人的方式来彰显自己的优越感，贬低对象甚至包括父母、孩子。
 
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
+https://www.peixun8.cc
+
 
 
 
 根据《默沙东诊疗手册》的描述，NPD患者通常还会患有重性抑郁症或持续性抑郁症、神经性厌食症、物质使用障碍（比如酗酒、滥用药物）或其他人格障碍（比如表演性、边缘性、偏执性）。
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+https://www.sgdj.net
+
 
 “无限放大你的缺点，并让你看起来像不正常的那个”“激起你的极端情绪，然后反过来指责你”“NPD患者倾向于维持着三角或多角关系”……
 
 一时间，好像每个人身边都围绕着一些NPD。
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+https://www.gyjk88.com
 
 02
 
 近些年来，知识科学越发普及，大众对心理健康也越发重视，很多原本冷僻的医学术语渐渐融入流行文化语境，社交平台也常见“确诊为XX”的热帖。豆瓣自恋型人格障碍小组中，最多的帖子是描述一些特征，让大家帮忙鉴定是否为NPD。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
+
+https://www.izhuang8.com
 
 其实，诊断NPD没那么简单，作为一种精神疾病，NPD的临床诊断标准非常严格，患病率也不高。如今被讨论的很多NPD，其实更像是自恋倾向过高的人，他们在个别事件或冲突中的一些言行，可能暴露了自恋特征，对他人造成伤害，但大多数情况下可以正常工作生活，共情他人。
 
 不过临床诊断难，并不妨碍NPD成为社交平台的话题新宠，NPD等标签的盛行，可能与以下因素有关。
 
 专业术语标签化。在现代信息化背景下，人们更加频繁地接触到心理相关的话题，然而，互联网上传播的心理学知识并不都是准确和全面的，很容易让人产生误解。NPD等专业术语往往被简化成一个标签，当某人表现得过于以自我为中心，不尊重他人时，人们用它来表达负面感受，使我们可以更轻松地将他人的行为解释为有问题或者病态。
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
+
+https://www.londunpremier.com
 
 
 
