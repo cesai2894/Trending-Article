@@ -12,12 +12,51 @@
 如果说当年的 5G，是在封锁里跑出来一条属于我们的通信大道；那么今天昇腾与 DeepSeek 的落地，则标志算力赛道正式开启同一场突围。胜负不在纸面参数，而在能不能长出一套扎根本土、场景自养、可持续迭代的独立算力生态。
 
 
+https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+https://www.jfweb.cn
+
 
 一、复盘5G：一场走完的对照实验，用数据证明封锁无效
 
 5G曾经是被极限封锁的赛道，如今成为全球最直观的国产产业突围样板，所有胜负不靠口号，只看落地规模、成本能力、生态体量。
 
-截至2025年底，国内5G基站总量达483.8万个，万人平均基站保有量34.4个，形成全域城乡连续覆盖、全场景商用网络。对比来看，美国5G基站长期维持数十万级别，覆盖碎片化、城乡断层明显，始终无法形成规模化商用底座。
+截至2025年底，国内5G基站总量达483.8万个，万人平均基站保有量34.4个，形成全域城乡连续覆盖、全场景商用网络。对比来看，美国5G基站长期维持数十万级别，覆盖碎片化、城乡断层明显，始终无法形成规模化商用底座。https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
+https://www.yuehaidl.com
+
 
 资费与普惠维度差距进一步拉开：国内5G流量单价持续逐年下探，充分完成民用普及；美国主流运营商5G基础套餐普遍50–70美元/月，折合人民币350元以上，同等流量使用成本是国内数倍。
 
@@ -26,6 +65,25 @@
 核心产业结论
 
 技术壁垒从来不是静态专利，而是大规模落地能力、海量真实场景、持续成本下探、产业链自我迭代。外部封锁没有打死产业，反而倒逼国内完成全链路自研、自产、自迭代的完整闭环。
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
+https://www.peixun8.cc
 
 
 
@@ -35,11 +93,51 @@
 市场多数目光聚焦股价波动，忽略算力赛道最底层的生态规则：CUDA数十年垄断，已经形成算力领域的“系统级生态霸权”，全球绝大多数大模型、算子库、开发工具、行业适配全部深度绑定。
 
 此前黄仁勋长期扮演对华政策缓冲角色，持续游说争取特供芯片出口空间，延缓全面断供节奏。随着核心管理层更迭，英伟达在华府的博弈筹码大幅弱化，更容易被鹰派政策裹挟，可控外部窗口基本关闭。
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+https://www.sgdj.net
+
 
 从产业底层看：GPU是超高投入、重迭代赛道，必须依靠海量市场摊薄研发与流片成本。一旦国内算力集群、模型生态、开发者体系全面迁移至国产栈，完成沉淀与适配，未来即便英伟达重回市场，全行业迁移成本将高到几乎不可逆。
 
 算力竞争，最终竞争的从来不是单卡性能，而是生态归属权。
 
+
+https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+https://www.gyjk88.com
 
 
 
@@ -57,7 +155,28 @@ DeepSeek V4 分为两大版本：
 
 全系实现基于昇腾950超节点集群完成预训练、微调、推理全链路闭环，不再依赖英伟达CUDA生态，是万亿级MoE大模型首次规模化落地国产算力栈。
 
-2. 芯模协同硬核实测数据
+2. 芯模协同硬核实测数据https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
+
+https://www.izhuang8.com
+
 
 双方联合开发专属 DeepEP 高性能通信库，适配MoE模型多维度并行架构：
 
@@ -74,6 +193,27 @@ DeepSeek V4 分为两大版本：
 推理性能维度：基于昇腾EP32部署策略，离线推理模式下
 
 - TPOT=5ms：单卡输出吞吐 2469 tokens/s
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
+
+https://www.londunpremier.com
 
 - TPOT=10ms：单卡输出吞吐 5102 tokens/s
 
