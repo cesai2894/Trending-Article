@@ -5,6 +5,26 @@
 如果只用一天观察深圳，APEC经贸合作的活力并不抽象。它藏在上午驶入盐田港的列车里，藏在中午降落在宝安机场的一票青蟹里，也藏在下午驶向全球的远洋巨轮中。陆海空在这里不是三条孤立的通道，而是一张持续运转的网络：内陆货物更快出海，海外商品更快入境，创客、客商和游客更顺畅往来。
 
 一列班列
+https://www.bigou.cc
+
+https://www.baobaow.com
+
+https://www.diyibaike.com
+
+https://www.youfang5.com
+
+https://www.sheicheng.com
+
+https://www.jd1.net
+
+https://www.visheng.com
+
+https://www.viyuan.com
+
+https://www.916m.com
+
+https://www.jfweb.cn
+
 
 成都的货 两天到盐田港
 
@@ -13,6 +33,26 @@
 
 
 因为连接成都、深圳、香港三地，这趟列车被命名为蓉深港图定班列。过去，成渝地区产品出海多依赖货车运到港口，在途时间长、运量有限，还容易受天气影响。2025年5月，定时、定点、定线的蓉深港图定班列开行后，到港时间从6天压缩到2天，综合物流成本降低30%以上。
+https://www.9ps.net
+
+https://www.gzcl999.cn
+
+https://www.xuehanzi.net
+
+https://www.qllw.com
+
+https://www.guangdong800.com
+
+https://www.baiwangeci.com
+
+https://www.sanrenwenku.com
+
+https://www.kuwsh.com
+
+https://www.66yl.cn
+
+https://www.yuehaidl.com
+
 
 盐田国际集装箱码头海铁联运服务部高级经理程万里介绍，班列开行以来，货运量同比增长28倍，由于市场需求持续增长，半年内已从每周1班加密到每周2班。
 
@@ -23,6 +63,25 @@
 
 
 中午，深圳宝安机场AK1520次航班降落。深圳海关所属深圳宝安机场海关物流园监管一科副科长陈勇接到同事电话：机上有一票从马来西亚运来的活锯缘青蟹，需要现场查验。
+https://www.xuezici.net
+
+https://www.niecn.com
+
+https://www.ipaiku.com
+
+https://www.bangquanipc.com
+
+https://www.bytx888.com
+
+https://www.cdbg.net
+
+https://www.baziwang.cn
+
+https://www.xunjie133.com
+
+https://www.exotwsh.cn
+
+https://www.peixun8.cc
 
 陈勇说，青蟹离水时间越长越容易损耗，所以要尽快完成查验。不到十分钟，他就赶到了监管区。海关方面通过最大限度压缩开箱和待检时间，对符合相关要求的货物实行查验合格即可提离，并以7×24小时制度保障货物抵达后及时检查。
 
@@ -31,6 +90,26 @@
 近年来，海关大力推行提前申报，产品抵港前，海关先进行预审，货物如需现场查验，会被运往海关监管区等待查验。除了青蟹，这一天还有很多来自APEC经济体的生鲜到港。
 
 广东深圳顺志兴报关有限公司关务经理黄业龙说，从俄罗斯帝王蟹、墨西哥象拔蚌，到越南黄鳝、花蛤等，报关团队从早上九点忙到晚上十点。
+
+https://www.fj313.cn
+
+https://www.ahjiajia.com
+
+https://www.dyjqd.com.cn
+
+https://www.yangfanhao.com
+
+https://www.jinyongwang.net
+
+https://www.whpyq.com
+
+https://www.tianbaoyh.com
+
+https://www.house360.net
+
+https://www.chinawenwang.com
+
+https://www.sgdj.net
 
 
 
@@ -46,13 +125,54 @@
 
 据深圳海关统计，今年前三季度，深圳对APEC其他经济体进出口货物金额达3.23万亿元，居全国首位，规模同比增长40%，创历史同期新高。
 
-一群人
+一群人https://www.huahuizhiye.com
+
+https://www.guowailvyou.com
+
+https://www.31tf.com
+
+https://www.jsjiaoyi.com
+
+https://www.19216811.org.cn
+
+https://www.eyesiteconcepts.com
+
+https://www.zjlrh.com
+
+https://www.qubmlty.com
+
+https://www.qiubaike.cc
+
+https://www.gyjk88.com
+
+
 
 五分钟入境 创客扎堆华强北
 
 区域合作不止于货物流转，航线加密、口岸通关便利化推进，也让人员流动、资金流动、信息流动同步活跃。
 
 在美国创客扎卡里看来，华强北创客空间最大的优势是速度。只要知道自己需要什么，就能找到工厂，也可以自己动手组装，把创意变成产品。他说，最近空间里来自APEC经济体的创客明显增多，有巴西、阿根廷、韩国等地的创客，大家经常一起合作。
+https://www.offcn.cc
+
+https://www.pudge.cn
+
+https://www.bjzgsj.cn
+
+https://www.jnxxfg.cn
+
+https://www.yjad.cn
+
+https://www.vcfree.cn
+
+https://www.wzblm.cn
+
+https://www.sdtfbj.com
+
+https://www.zly169.com
+
+https://www.nnzhiyuan.cn
+
+https://www.izhuang8.com
 
 
 
@@ -60,6 +180,27 @@
 
 一名墨西哥旅客表示，通关非常简单，自己有APEC商务旅行卡，在中国旅行方便，交通也便捷，正考虑每年到中国度假和做生意。一名越南旅客则说，从下飞机到入境整个时间非常快，也就几分钟。
 
+https://www.nc123.net
+
+https://www.hzailai.com
+
+https://www.97gif.com
+
+https://www.jesdz.com
+
+https://www.jxscct.com
+
+https://www.gayuseal.com
+
+https://www.66688882.com
+
+https://www.ssood.com
+
+https://www.liveglish.net
+
+https://www.qhlchina.com
+
+https://www.londunpremier.com
 
 
 深圳边检总站深圳机场边检站执勤六队副队长李骞介绍，通关流程越来越顺畅，外国人在机场口岸最快5分钟以内就可以入境。截至2026年11月，中国已与俄罗斯、新加坡、泰国、马来西亚等多个APEC经济体实现普通护照双向免签，面向APEC经济体的人员往来“绿色通道”越织越密。
